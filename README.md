@@ -126,17 +126,17 @@ engaging,secure, and FUN!. We believe Padme will be an
 
 invaluable asset 
 
-to any educational 
+to educators, parents, and students.
 
 
 
-Plus, PADME is a real live dog! Rescued from the streets,
+PADME is a real live dog! Rescued from the streets,
 
 dehydrated and badly burned..
 
-she survived. And she is cute and Marketable as a 
+she survived. And she is cute and Marketable and a lively, expressive
 
-mascot for the project.
+mascot for the project. She loves kids and the camera loves her.
 
 She is named after Padme Amadalla from Star Wars. A fantastic role model, EDUCATED, DRIVEN, INTELLIGENT AND INTERESTING.
 
@@ -144,5 +144,5 @@ This project will hopefully
 
 benefit  the kids in  my neighborhood someday.
 
-Our drop out rate is 50% by 7th grade .
+Our drop out rate is 40% by 7th grade.
 
